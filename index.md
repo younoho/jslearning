@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## good luck my babe~~~~~
 
 You can use the [editor on GitHub](https://github.com/younoho/jslearning/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
